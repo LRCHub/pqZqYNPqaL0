@@ -1,4 +1,4 @@
-# Radwimps – DARMA GRAND PRIX
+# RADWIMPS – DARMA GRAND PRIX
 
 > **歌詞登録ステータス：同期歌詞あり**
 
